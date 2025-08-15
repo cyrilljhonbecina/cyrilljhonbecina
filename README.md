@@ -1,5 +1,5 @@
 #  this is me i think
-## i make robots with conscience to make them realize the don't have have free will
+## i make robots with conscience to make them realize they don't have have free will
 
 
 # this is either true or i just put it there
